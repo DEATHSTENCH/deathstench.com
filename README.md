@@ -1,2 +1,2 @@
-# deathstench.github.io
-Sorry for mucking this place up.
+# deathstench.bandcamp.com
+#deathstench.facebook.com
